@@ -1,3 +1,3 @@
-# Homer Stickers
+# Images
 
-All rights reserved to Domomi Rentals Ltd.
+All homer stickers reserved to Domomi Rentals Ltd.
